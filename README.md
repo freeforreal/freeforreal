@@ -1,20 +1,19 @@
-# Welcome to the Ultimate Leaks & Spoilers Server! 🔥💣
+# Welcome to the Ultimate Leaks & Tools Discord server! 🔥💣
 
-Hey everyone! 🙌 Are you ready to dive into the world of **exclusive leaks** and **top-secret spoilers**? If you're someone who loves getting the inside scoop before anyone else, you've come to the right place! 😎💥
+Hey everyone! 🙌 Are you ready to dive into the world of **exclusive leaks** and **the BEST tools**? If you're someone who loves getting the inside scoop before anyone else, you've come to the right place! 😎💥
 
 ## What We Offer 🎁
 
 Our server is your gateway to a treasure trove of **early access** information, covering a wide range of topics. Here's what you can expect when you join our amazing community:
 
 ### 🔍 **Exclusive Leaks**
-Get your hands on confidential info, spoilers, and sneak peeks that you won’t find anywhere else. Whether it's about tech, movies, games, or other hot topics, we’ve got it all! 🎮🎬📱
+Get your hands on confidential info, leaks, databases, pan3ls, tools, t3chs, proxies, ebooks... And much more! 🎮🎬📱
 
 ### 🗂️ **Diverse Categories**
 We cover a **wide variety** of topics, ensuring there's something for everyone:
-- **Technology**: Upcoming gadgets, software, and innovations 🖥️📱
-- **Entertainment**: Movie spoilers, TV series leaks, and game previews 🍿🎮🎧
-- **Fashion & Trends**: Be the first to know about upcoming styles and trends 👗👠
-- **Events & Launches**: Get the lowdown on upcoming releases, product drops, and much more 🚀🗓️
+- **Tools**: Upcoming gadgets, software, and innovations 🖥️📱
+- **DataBases**: The best DB 🤡🦄
+- **Techs and Ebooks**: New methods for ALL 👍🔥
 
 ### ⏰ **Daily Updates**
 We keep things **fresh and exciting** with daily updates on the latest leaks and rumors. You’ll never miss out on the newest info! 🚨
@@ -36,15 +35,15 @@ We pride ourselves on being a **tight-knit and reliable** community. Trust and r
 
 To maintain a **safe and enjoyable** space for everyone, we have some essential rules in place:
 
-1. No swear wors in the text channels of the server
-2. No spam in the server
-3. No explicit content in all the server
-4. Infringing one of all the rules will result in a ban
+**1.** No swear wors in the text channels of the server
+**2.** No spam in the server
+**3.** No explicit content in all the server
+**4.** Infringing one of all the rules will result in a ban
 
 ## Ready to Join? 🚀
 
 If you're excited to be part of an **elite community** that’s always in the know, don’t hesitate! **Join our Leaks & Spoilers Server today** and be the first to uncover the secrets that the world hasn’t seen yet! 🔓👀
 
-[**Click here to join!**](#) 🎉🎉
+[**Click here to join!**](https://discord.gg/freeforreal) 🎉🎉
 
 We can't wait to see you on the inside! 💬👾
